@@ -1,3 +1,4 @@
+![cooltext453242538903029](https://github.com/rathomie/rathomie/assets/161653297/56a60180-0bf3-4ef1-bb29-d35e26b3d43f)
 # ☞ sup
  <br>  » im ratman or rathomie or silly or whatever
   <br> » im a he/him male man

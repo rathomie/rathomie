@@ -9,5 +9,6 @@
  <br> ﹕**PLEASE** interact if you like anything that i do :3 
  <br> ﹕yeah you can use my stuff for inspiration or something idc
  <br>*i make a lot of nsfw jokes chat*
+ <br> 💯🔥
 <br> ![silly](https://i.pinimg.com/564x/70/37/18/7037181a5ff9fee1c4bae04a12519414.jpg)
 

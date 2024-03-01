@@ -10,5 +10,5 @@
  <br> ﹕yeah you can use my stuff for inspiration or something idc
  <br> ﹕*i make a lot of nsfw jokes chat*
  <br> 💯🔥
-<br> ![silly](https://i.pinimg.com/564x/70/37/18/7037181a5ff9fee1c4bae04a12519414.jpg)
-
+<br> ![silly](https://i.pinimg.com/564x/89/c7/59/89c7591901a2b2704ad2bb5bde2c9ecb.jpg)
+<br> ![to pt players](https://r72.cooltext.com/rendered/cooltext453242335944128.gif)

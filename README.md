@@ -1,4 +1,4 @@
-# sup
+# ☞ sup
  <br>  » im ratman or rathomie or silly or whatever
   <br> » im a he/him male man
 ### basic sh⍢t about me

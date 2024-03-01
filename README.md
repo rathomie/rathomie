@@ -1,5 +1,4 @@
-![cooltext453242538903029](https://github.com/rathomie/rathomie/assets/161653297/56a60180-0bf3-4ef1-bb29-d35e26b3d43f) ![garfpenis (2)](https://github.com/rathomie/rathomie/assets/161653297/abd31dfd-7afc-43f6-9e67-91c224aa55e7)
-
+![garfpenis (2)](https://github.com/rathomie/rathomie/assets/161653297/abd31dfd-7afc-43f6-9e67-91c224aa55e7) ![cooltext453242538903029](https://github.com/rathomie/rathomie/assets/161653297/56a60180-0bf3-4ef1-bb29-d35e26b3d43f) 
 # ☞ sup
  <br>  » im ratman or rathomie or silly or whatever
   <br> » im a he/him male man

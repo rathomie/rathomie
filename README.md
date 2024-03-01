@@ -12,4 +12,5 @@
  <br> 💯🔥
 <br> ![silly](https://i.pinimg.com/564x/89/c7/59/89c7591901a2b2704ad2bb5bde2c9ecb.jpg)
 
-<br> ![cooltext453242335944128](https://github.com/rathomie/rathomie/assets/161653297/517ec641-deee-4622-86ca-728002c42f2d)
+<br> ![cooltext453242485647473](https://github.com/rathomie/rathomie/assets/161653297/7309d984-fc47-4e21-8a01-2d01193d9e0f)
+

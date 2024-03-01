@@ -12,7 +12,7 @@
  <br> ﹕**PLEASE** interact if you like anything that i do :3 
  <br> ﹕yeah you can use my stuff for inspiration or something idc
  <br> ﹕*i make a lot of nsfw jokes chat*
- <br> 💯🔥
+ <br> ‎ 
 <br> ![silly](https://i.pinimg.com/564x/89/c7/59/89c7591901a2b2704ad2bb5bde2c9ecb.jpg)
 
 

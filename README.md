@@ -11,4 +11,5 @@
  <br> ﹕*i make a lot of nsfw jokes chat*
  <br> 💯🔥
 <br> ![silly](https://i.pinimg.com/564x/89/c7/59/89c7591901a2b2704ad2bb5bde2c9ecb.jpg)
-<br> ![to pt players](https://r72.cooltext.com/rendered/cooltext453242335944128.gif)
+
+<br> ![cooltext453242335944128](https://github.com/rathomie/rathomie/assets/161653297/517ec641-deee-4622-86ca-728002c42f2d)

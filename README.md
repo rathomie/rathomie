@@ -10,4 +10,4 @@
  ✓ yeah you can use my stuff for inspiration or something idc
  . i make a lot of nsfw jokes
 #‎ 
-![silly](https://i.pinimg.com/564x/8f/e2/df/8fe2df2fb28118896d1369f78eeaeb21.jpg)
+

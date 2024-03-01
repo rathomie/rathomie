@@ -17,5 +17,5 @@
 
 
 ![d2hkxd0-6c5d97b8-60cc-4790-b50e-1c64ff408030](https://github.com/rathomie/rathomie/assets/161653297/b9bc10c6-7e28-48b8-8549-46b59e7ab8ca) 
-![d218gnu-c29cfdc0-214c-48d1-860c-a518e0405757](https://github.com/rathomie/rathomie/assets/161653297/7adfc1f9-1cc9-4d29-80a6-907cb81a1ca1)
+
 

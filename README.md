@@ -14,7 +14,7 @@
  <br> ﹕*i make a lot of nsfw jokes chat*                                       
  <br> ‎ 
 <br> ![silly](https://i.pinimg.com/originals/fa/21/b2/fa21b27cbfd11aa4a73258c5819dd79c.gif)
-                                                                                                  ![wowza](https://ih0.redbubble.net/image.4539149584.7787/raf,360x360,075,t,fafafa:ca443f4786.jpg)
+![wowza]([https://ih0.redbubble.net/image.4539149584.7787/raf,360x360,075,t,fafafa:ca443f4786.jpg](https://www.fightersgeneration.com/nz4/char/adachi-p4au-bang.gif))
 
 ![d2hkxd0-6c5d97b8-60cc-4790-b50e-1c64ff408030](https://github.com/rathomie/rathomie/assets/161653297/b9bc10c6-7e28-48b8-8549-46b59e7ab8ca) ![df7b8e5-3647f42f-9f6a-48a0-9744-3c80487701ac](https://github.com/rathomie/rathomie/assets/161653297/a3e8f6ed-7318-4ef4-9172-717ff8b152cd) ![plague_rat_stamp__by_alice91_d1utvr0-fullview](https://github.com/rathomie/rathomie/assets/161653297/a56b00bb-e895-4fed-88ed-92360057d3f1) ![support__3_by_theironbirdofficial_d1as4k9-fullview](https://github.com/rathomie/rathomie/assets/161653297/89f9f02b-56e0-4922-8d0a-6c0b2c911403)
 ![tumblr_be7444c642779e95b91e20efafa90ff9_a49daed7_100](https://github.com/rathomie/rathomie/assets/161653297/233841dd-76c6-453d-9834-2ac019314613)

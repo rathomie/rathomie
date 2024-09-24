@@ -16,7 +16,7 @@
 
 ###
 
-<p align="left">: ̗̀➛ my timezone is CET im Polish ewww...<br>» i make silly games sometimes, ill maybe link my gamejolt here one day<br>: ̗̀➛ i love tf2, mgs, persona, gmod, fortnite, half life, silent hill, cof, resident evil, fnaf, lis, death note, the webcomic (sadly)</p>
+<p align="left">: ̗̀➛ my timezone is CET im Polish ewww...<br>» i make silly games sometimes, ill maybe link my gamejolt here one day<br>: ̗̀➛ i love tf2, mgs, persona, gmod, fortnite, half life, silent hill, cof, resident evil, fnaf, lis, death note, pokemon, the webcomic (sadly)</p>
 
 ###
 

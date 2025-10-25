@@ -20,13 +20,13 @@
 
 ###
 
-<div align="left">
+<div align="right">
   <img height="200" src="https://www.fightersgeneration.com/nz4/char/adachi-p4au-walk-backward.gif"  />
 </div>
 
 ###
 
-<h6 align="left">^ the fog is coming</h6>
+<h6 align="right">^ the fog is coming</h6>
 
 ###
 

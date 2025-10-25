@@ -6,13 +6,13 @@
 
 ###
 
-<div align="right">
+<div align="left">
   <img height="200" src="https://www.fightersgeneration.com/nz4/char/adachi-shrug-loop.gif"  />
 </div>
 
 ###
 
-<h6 align="right">^  adacher</h6>
+<h6 align="left">^  adacher</h6>
 
 ###
 

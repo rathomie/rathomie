@@ -1,54 +1,15 @@
-<h2 align="center">HELLO!!!!<br>ᐢᗜᐢ</h2>
+![yo](https://64.media.tumblr.com/838dba2f041530954cbfe722c0d9a865/bffd9988782c76d9-dd/s2048x3072/329daa779f9d93b17f0aac191d32ffd11e99fabc.gifv).
+<h1 align="center">⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺</h1> 
+<h2 align="center">Wsgg... gang</h2>
 
-###
+![adachi](https://64.media.tumblr.com/92ae6e80819c650828f09c4ff6800e15/3c3d67d3a0a79695-de/s1280x1920/ba9b855d2321993f3dca3a5d045210d38d45447e.pnj).
+<p align="center">
+  Im ratman or rathomie call me whatever you like idk im polish, i like: Persona, Dispatch, Pokemon, Unstable, Lifesteal, Homestuck, Forsaken, Infinity Train, Death Note.
+</p>
 
-<p align="left">: ̗̀➛im ratman, rathomie or silly <br>» im super awesome and i like cool stuff like coding, rats, drawing and being 𝓯𝓻𝓮𝓪𝓴𝔂</p>
+![okay](https://64.media.tumblr.com/292c4f403d64b017e5e142b6979bdc97/bffd9988782c76d9-77/s2048x3072/1c59aeb76d2771c1e5b7543ba9e08b4a02edf201.gifv). 
 
-###
-
-<div align="right">
-  <img height="200" src="https://www.fightersgeneration.com/nz4/char/adachi-shrug-loop.gif"  />
-</div>
-
-###
-
-<h6 align="right">^  adacher</h6>
-
-###
-
-<p align="left">: ̗̀➛ my timezone is CET im Polish ewww...<br>» i make silly games sometimes, ill maybe link my gamejolt here one day<br>: ̗̀➛ i love tf2, mgs, persona, gmod, fortnite, half life, silent hill, cof, resident evil, fnaf, lis, death note, mob psycho, pokemon, heathers, hamilton, rtc, danganronpa... yeah and THE webcomic (sadly)</p>
-
-###
-
-<div align="right">
-  <img height="200" src="https://www.fightersgeneration.com/nz4/char/adachi-p4au-walk-backward.gif"  />
-</div>
-
-###
-
-<h6 align="right">^ the fog is coming</h6>
-
-###
-
-<p align="left">for pt players..</p>
-
-###
-
-<p align="left">: ̗̀➛ PLEASE interact if you like anything that i do ;p<br>» yeah you can copy me or use my stuff for inspo</p>
-
-###
-
-<div align="center">
-  <img height="200" src="https://www.dustloop.com/wiki/images/c/cb/P4U2R_Adachi_Throw-1.png?20220807030437"  />
-</div>
-
-###
-
-<h6 align="center">discord: rathomie</h6>
-
-###
-
-<div align="left">
-</div>
-
-###
+<p align="center">
+  discord: rathomie
+  feel free to int
+</p>

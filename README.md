@@ -1,10 +1,10 @@
-![yo](https://64.media.tumblr.com/a42b1c2741b2743c85143b77e1c74976/bdcf5a71f78642e0-b7/s1280x1920/50265ab40a77e3fffff9c3defb2eda39ba00ff58.pnj).
+![yo](https://64.media.tumblr.com/539ba38be860a7d2c72f245ef8c78824/bf304f3cdd8ac217-80/s1280x1920/9ace03000a7d7b846393437852011288df7b9216.gifv).
 <h1 align="center">⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺</h1> 
 <h2 align="center">Wsgg... gang</h2>
-<p align="center">
+
 ![adachi](https://64.media.tumblr.com/92ae6e80819c650828f09c4ff6800e15/3c3d67d3a0a79695-de/s1280x1920/ba9b855d2321993f3dca3a5d045210d38d45447e.pnj).
 </p>
-<p align="center">
+
   Im ratman or rathomie call me whatever you like idk im polish, i like: Persona, Dispatch, Pokemon, Unstable, Lifesteal, Homestuck, Forsaken, Infinity Train, Death Note.
 </p>
 
@@ -13,5 +13,5 @@
   feel free to int
 </p>
 
-![stars idk](https://64.media.tumblr.com/75df21f8ddf93d368874d052cd8dcd58/bdcf5a71f78642e0-4d/s640x960/b3580662049dd326c3ee72f8aa91e9812b3f8bc8.gifv).
+![stars idk](https://64.media.tumblr.com/f4386b87fcedf5e48a2c3f31d571c63e/bf304f3cdd8ac217-5a/s1280x1920/2bbe16258a2e32183eba03ae21ca676e00efbbf4.pnj).
 

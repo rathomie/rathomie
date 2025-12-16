@@ -1,4 +1,6 @@
-![yo](https://64.media.tumblr.com/539ba38be860a7d2c72f245ef8c78824/bf304f3cdd8ac217-80/s1280x1920/9ace03000a7d7b846393437852011288df7b9216.gifv).
+<p align="center">
+  <img src="https://64.media.tumblr.com/539ba38be860a7d2c72f245ef8c78824/bf304f3cdd8ac217-80/s1280x1920/9ace03000a7d7b846393437852011288df7b9216.gifv" alt="yo">
+</p>
 <h1 align="center">⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺</h1> 
 <h2 align="center">Wsgg... gang</h2>
 
@@ -13,5 +15,6 @@
   feel free to int
 </p>
 
-![stars idk](https://64.media.tumblr.com/f4386b87fcedf5e48a2c3f31d571c63e/bf304f3cdd8ac217-5a/s1280x1920/2bbe16258a2e32183eba03ae21ca676e00efbbf4.pnj).
-
+<p align="center">
+  <img src="https://64.media.tumblr.com/f4386b87fcedf5e48a2c3f31d571c63e/bf304f3cdd8ac217-5a/s1280x1920/2bbe16258a2e32183eba03ae21ca676e00efbbf4.pnj" alt="yo">
+</p>

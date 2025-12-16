@@ -1,4 +1,4 @@
-![yo](https://64.media.tumblr.com/38b090074c6e9a8f73616fef4bd9f1a9/215cf8b0e7f43249-43/s400x600/7e04b936440f5115e76412b7ae592094b31dfcee.gifv).
+![yo](https://64.media.tumblr.com/be7e105b49354bceab54ae224cb8ed7d/fec5aecda75e5f7a-0d/s1280x1920/80a09b9cb571406784186ebcad66ae914bd2db62.pnj).
 <h1 align="center">⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺</h1> 
 <h2 align="center">Wsgg... gang</h2>
 
@@ -8,9 +8,10 @@
   Im ratman or rathomie call me whatever you like idk im polish, i like: Persona, Dispatch, Pokemon, Unstable, Lifesteal, Homestuck, Forsaken, Infinity Train, Death Note.
 </p>
 
-![stars idk](https://64.media.tumblr.com/be7e105b49354bceab54ae224cb8ed7d/fec5aecda75e5f7a-0d/s1280x1920/80a09b9cb571406784186ebcad66ae914bd2db62.pnj).
-
 <p align="center">
   discord: rathomie
   feel free to int
 </p>
+
+![stars idk](https://64.media.tumblr.com/be7e105b49354bceab54ae224cb8ed7d/fec5aecda75e5f7a-0d/s1280x1920/80a09b9cb571406784186ebcad66ae914bd2db62.pnj).
+

@@ -1,4 +1,4 @@
-![yo]([https://link-to-your-gif.gif](https://64.media.tumblr.com/838dba2f041530954cbfe722c0d9a865/bffd9988782c76d9-dd/s2048x3072/329daa779f9d93b17f0aac191d32ffd11e99fabc.gifv).
+![yo](https://64.media.tumblr.com/838dba2f041530954cbfe722c0d9a865/bffd9988782c76d9-dd/s2048x3072/329daa779f9d93b17f0aac191d32ffd11e99fabc.gifv).
 <h1 align="center">⁺‧₊˚ ཐི⋆♱⋆ཋྀ ˚₊‧⁺</h1> 
 <h2 align="center">Wsgg... gang</h2>
 
